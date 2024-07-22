@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on high-value projects through which I can demonstrate my skills.
 - 📫 How to reach me --> instagram : `@qasim_aleem` ;) 
 - 😄 Pronouns: He/Him :) 
-- ⚡ Fun fact: I love coding when I do it in my free time but, I hate it when someone forces me to do it :D
+- ⚡ Fun fact: I love coding when I do it in my free time but, I hate it when someone forces me to do it xD
 
 <!---
 Qasim1335/Qasim1335 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
