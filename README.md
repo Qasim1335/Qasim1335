@@ -1,6 +1,6 @@
 - 👋 Hi, I’m **`@Qasim1335`**
 - 🌱 I’m currently learning about the **G.I.T Software** :D
-- 💞️ I’m looking to collaborate on **high-value projects through which I can demonstrate my skills.**
+- 💞️ I’m looking to collaborate on **high-value projects that can challenge me and help me learn and polish my skills.**
 - 📫 How to reach me **--> instagram : `@qasim_aleem` ;)**
 - 👀 I’m interested in Sports like Cricket, Badminton etc., and I also love coding on my computer 
 - 😄 *Pronouns*: **He/Him :)**
